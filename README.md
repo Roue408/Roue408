@@ -8,4 +8,3 @@
 - 📫 How to reach me: carrier pigeon 
 - 😄 Pronouns:him/he
 - ⚡ Fun fact: giraffes have the same number of bones in their neck as humans do.
--->
